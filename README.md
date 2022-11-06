@@ -1,6 +1,8 @@
 
 		
-<figure class="wp-block-image"><img src="./Full list of cryptocurrency exchange hacks 2011 - 2022 - CRYPTO DEEP TECH_files/022-1024x576.png" alt="Full list of cryptocurrency exchange hacks [ 2011 - 2022 ]" class="wp-image-1489"></figure>
+
+
+<figure class="wp-block-image"><img src="https://cryptodeep.ru/wp-content/uploads/2022/11/hacks-1536x958.jpg" alt="Full list of cryptocurrency exchange hacks [ 2011 - 2022 ]" class="wp-image-1489"></figure>
 
 
 
